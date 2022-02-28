@@ -1,1 +1,0 @@
-# 01.Periodo_Examen_Tercero_Info2022
